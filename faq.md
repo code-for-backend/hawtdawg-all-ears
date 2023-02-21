@@ -13,3 +13,7 @@ Where do I list my fav treats?
 In the edit profile section there are bunch of options to 
 do that
 
+Is there any app subscription?
+
+Currently there are no subscription charges hurray!
+
